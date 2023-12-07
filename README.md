@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Unikitty185
+- 👋 Hi, I’m Unikitty
 - 👀 I’m interested in video games and food
 - 🌱 I’m currently learning more laungages 
 - 💞️ I’m looking to collaborate on animation memes and art
